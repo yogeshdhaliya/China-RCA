@@ -1,1 +1,1 @@
-# China-RCA
+# China-Relative Comparative Advantage
